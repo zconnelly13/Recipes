@@ -24,3 +24,5 @@ Portabello Stroganoff
 2. Once the mushrooms and onions are done sprinkle in some flour and cook another minute or so
 3. Deglaze with the beef broth, lower heat and simmer for a little while longer
 4. Add Sour Cream, Goat Cheese (2:1 ratio), Salt, Black Pepper cover and simmer 2-4 mins to warm the sour cream and cheese
+
+### Serve over rice ^_^
